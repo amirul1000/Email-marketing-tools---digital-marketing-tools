@@ -33,10 +33,7 @@ Prepare your next sales engagement and email marketing campaign with Email tools
 #emailsoftware
 
 
-Youtube Tutorial : https://youtu.be/k9cLEdGNu7A
-
-Youtube Channel : https://www.youtube.com/channel/UC2Q4oWfoMQzi6AES8Vb2vQw?view_as=subscriber
+Youtube Tutorial : https://youtu.be/n75qugUxxzY
 
 Donate to Paypal : patabuz@gmail.com
 
-https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&hosted_button_id=KHM59LRPNV3YY&source=url
